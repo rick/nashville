@@ -21,3 +21,4 @@ My summary of places and businesses to patronize or to forever boycott, based on
 | Rippy's | Stayed open well past safety, endangering customers, non-compliant with Nashville distancing and capacity orders |
 | Star Bagel | QAnon fuckwittery online; unsafe pickup practices; complaints from long-time customers about unsafe environment and anti-safety rhetoric |
 | Honky Tonk Central | |
+| Tin Roof II, Franklin | ["Killin' Grandma to own the libs"](https://twitter.com/sarahfor5/status/1259287001423020034)|
